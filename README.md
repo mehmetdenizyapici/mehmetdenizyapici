@@ -1,2 +1,2 @@
-Instagram: @m.denizyapici
-Bastardcore <3
+- Instagram: @m.denizyapici
+- Bastardcore <3
