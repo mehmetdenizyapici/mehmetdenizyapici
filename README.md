@@ -1,3 +1,2 @@
-- 👋 Hi, I’m @mehmetdenizyapici
-- Instagram: @m.denizyapici
-- Like Python, Hate Java, Listen to Metalica, Thanks.
+Instagram: @m.denizyapici
+Bastardcore <3
